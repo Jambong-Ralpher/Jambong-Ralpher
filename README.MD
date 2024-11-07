@@ -1,4 +1,4 @@
-Hi there! 👋 am Ralpher
+Hi there! 👋 am Jambong Ralpher
 
 Experimenting and exploring.
 
